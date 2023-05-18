@@ -1,0 +1,1 @@
+Fin-kit-test for Dmitrii Maslennikov
